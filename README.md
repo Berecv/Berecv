@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Berecv
+- 👀 I’m interested in the geek culture, technology, music and desing.
+- 🌱 I’m currently learning to play guitar, japanesse lenguage, about programatión and Azure's cloud.
+- 💞️ I’m looking to collaborate on small proyects 'cause im not really an expert in programation yet.
+- 📫 How to reach me, always in your harth uwu
